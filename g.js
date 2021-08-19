@@ -1,2 +1,2 @@
 Gabriel Miranda
-Santo André - SP
+San Francisco - California  
